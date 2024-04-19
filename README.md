@@ -2,4 +2,4 @@
 
 - Team: Nithish Anand, Chantelle Cornett, Hanane Issa
 
-	ᕕ(⌐o_o)ᕗ ♪♬
+╰( ͡° ͜ʖ ͡° )つ──☆*:・ﾟ
